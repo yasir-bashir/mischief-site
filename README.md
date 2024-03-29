@@ -1,1 +1,1 @@
-click to visit: https://yasir-bashir.github.io
+click to visit: https://yasir-bashir.github.io/mischief-site
